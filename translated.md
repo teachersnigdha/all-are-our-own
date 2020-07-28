@@ -1,4 +1,4 @@
-![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)]
+![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
 
 > [Soundcloud](https://soundcloud.com/user-963789405/ivdvbl6wkyim).
 
