@@ -42,4 +42,4 @@ To the earth’s arms.
 ```
 
 - Poem by Snigdharani Sahoo
-- Image by Peter H from Pixabay
+- Photo by Quang Nguyen Vinh from Pexels
