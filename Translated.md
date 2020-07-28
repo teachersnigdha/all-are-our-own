@@ -41,4 +41,5 @@ That heaven, coming down,
 From the Earth’s Book.
 ```
 
-- Snigdharani Sahoo
+- Poem by Snigdharani Sahoo
+- Photo by Quang Nguyen Vinh from Pexels
