@@ -41,4 +41,5 @@ Is it the heaven, coming down,
 To the earth’s arms.
 ```
 
-- Snigdharani Sahoo
+- Poem by Snigdharani Sahoo
+- Photo by Quang Nguyen Vinh from Pexels
