@@ -53,4 +53,5 @@
 ***
 <br>
 
-- ସ୍ନିଗ୍ଧା ରାଣୀ ସାହୁ
+- Poem by ସ୍ନିଗ୍ଧା ରାଣୀ ସାହୁ
+- Photo by Quang Nguyen Vinh from Pexels
