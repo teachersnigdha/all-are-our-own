@@ -1,3 +1,7 @@
+![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
+
+> [Click here to listen](https://soundcloud.com/user-963789405/ivdvbl6wkyim).
+
 #### ମିଛ ମାୟା ଭରା, ନୁହେଁ ଏ ସଂସାର,
 #### ସଭିଏଁ ତ ଆପଣାର,
 #### ଆପଣାର ଭାଇ, ବନ୍ଧୁ ଓ କୁଟୁମ୍ବ,
