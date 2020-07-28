@@ -40,4 +40,10 @@ That heaven, coming down,
 From the Earth’s Book.
 ```
 
+> Styles: [English], [Odia], [Translated].
+
 - Snigdharani Sahoo
+
+[English]: README.md
+[Odia]: odia.md
+[Translated]: translated.md
