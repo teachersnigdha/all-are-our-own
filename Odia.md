@@ -1,5 +1,6 @@
 ![](assets/img/man-on-boat-holding-white-mesh-fishing-net-2131904.jpg)
 
+> Styles: [English](README.md), [Odia](Odia.md), [Translated](Translated.md).<br>
 > [Click here to listen](https://soundcloud.com/user-963789405/ivdvbl6wkyim).
 
 #### ମିଛ ମାୟା ଭରା, ନୁହେଁ ଏ ସଂସାର,
